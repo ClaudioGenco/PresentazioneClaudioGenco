@@ -1,6 +1,6 @@
 # Presentazione Claudio Genco
 
-                          PRESENTAZIONE CLAUDIO GENCO 
+PRESENTAZIONE CLAUDIO GENCO 
 
 Ottime capacità informatiche, esperto nella tecnologia e con eccellenti capacità di
 leadership e sviluppo delle relazioni interpersonali. Continua voglia di apprendere,
